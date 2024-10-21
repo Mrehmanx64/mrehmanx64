@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rehmanroxxs@gmail.com**
 
-- ⚡ Fun fact **I have a deadly sense of humour**
+- ⚡ Fun fact **I have  deadly sense of humour**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
